@@ -1,4 +1,4 @@
-Hi 👋 My name is Wachirayan Engchuan
+Hi 👋 I'm C4
 ====================================
 
 o-o
